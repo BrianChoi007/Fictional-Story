@@ -1,4 +1,4 @@
-# Fictional-Story
+# A Short Fictonal Story
 
   On a tranquil mid-evening on a coastal island, birds were chirping, flowers were blooming simultaneously, water was splashing down the river, and the people were continuously minding their own business. Near the center of the island stood a vast meadow with an abundant amount of switchgrasses and sunflowers evenly spread throughout the field. Everything seemed enthusiastically ordinary, but suddenly, all the birds quickly hid in their nests, the flowers lightly orientated their head in the shadow behind the bushes and the little splashes of water literally became unheard; it was the anonymous presence of a fair-haired boy and a blue-eyed girl, walking side-by-side with each other.
 
